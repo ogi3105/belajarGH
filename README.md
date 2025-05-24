@@ -1,2 +1,2 @@
 # belajarGH
-KNTL
+GONDRONG BIADAB
